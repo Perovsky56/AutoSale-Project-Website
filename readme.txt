@@ -1,2 +1,2 @@
-Paweł Siemiginowski
-s101450
+Paweł S
+s1014**
